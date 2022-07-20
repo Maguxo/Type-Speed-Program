@@ -8,4 +8,4 @@ Se hace el panel que inicia, se tratara girar a voluntad una imagen circular en 
 ...........
 .......-----------------------
 ..................-----------ñlñmmm
-----------------
+----------------añlmcñmas
