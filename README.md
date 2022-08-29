@@ -8,7 +8,7 @@ Se hace el panel que inicia, se tratara girar a voluntad una imagen circular en 
 ...........
 .......-----------------------egergergerg
 ..................-----------ñlñmmmlñmlkm´´´´´´´´´´
-----------------añlmcñmas-------------.....tjdtmdtyjdtmntmdghn..-------ergerergergerge
+----------------añlmcñmas-------------.....tjdtmdtyjdtmntmdghn..---dfvdfvfdvsfvfdvfdvdfv----ergerergergerge
 -------.--..nlkjkbobñbñkbzfbdfbdfbdfdxfnfgnfgnfgnfgndfbbbhrnbrtnertnertnrtcnbgndfndfndfn
 -----yrjytjtyjtjtyjfgnfgnfgnfgngfnfgnjtnertymnerytnrtdgdfbdfbdfbdfbdfbcvcbd cv cv cv cvv vc cv cvbdfbdfbdfbdf
 nclkjdskjlnñdsnkjldsfbdfbfgbfgbfgnfgdkjldergerghbgdbdfbdfbb.klhblhvvlvhvñihvñihvñjvjkergerg
