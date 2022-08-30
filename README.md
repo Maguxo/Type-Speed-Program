@@ -12,6 +12,6 @@ Se hace el panel que inicia, se tratara girar a voluntad una imagen circular en 
 -------.--..nlkjkbobñbñkbzfbdfbdfbdfdxfnfgnfgnfgnfgndfbbbhrnbrtnertnertnrtcnbgndfndfndfn
 -----yrjytjtyjtjtyjfgnfgnfgnfgngfnfgnjtnertymnerytnrtdgdfbdfbdfbdfbdfbcvcbd cv cv cv cvv vc cv cvbdfbdfbdfbdf
 nclkjdskjlnñdsnkjldsfbdfbfgbfgbfgnfgdkjldergerghbgdbdfbdfbb.klhblhvvlvhvñihvñihvñjvjkergerg
-vbdbdfbdnrtnrtnrtnrtnrtnrtnhtrnrtehbgnfgngngnfgn
+vbdbdfbdnrtnrtnrtnrtnrtnrtnhtrnrtehbgnfgngngnfgnvn vb bv vb vb vb vb
 rthrthrthrthtrhrthrthrt
 ghfgnfgnfgnfgn
