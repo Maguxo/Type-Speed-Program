@@ -11,7 +11,7 @@ Se hace el panel que inicia, se tratara girar a voluntad una imagen circular en 
 ----------------añlmcñmas-------------.....tjdtmdtyjdtmntmdghn..---dfvdfvfdvsfvdsbsdfbdfbdfbdfbdfbdsbfdvfdvdfv----ergerergergerge
 rthhthtrh-..nlkjkbobñbñkbzfbdfbdfbdfdxfnfgnfgnfgnfgndfbbbhrnbrtnertnertnrtcnbgndfetrhthrtndfndfnerbrbrbefvergeprhiuwgpoejñlgwepoporflfñgwehrigñengpiu3pigunergnwerrthrthrthththrthrthrthtrhrthrth
 -----yrjytjtyjtjtyjfgnfgnfgnfgngfnfgnjtnertymnerytnrtdgdfbdfbdfbdfbdfbcvcbd cgfrbnernertnetynmetnrtntrnernetnertnrtnernetnfgbv cv cv cvvsfvsfvsdvsvasdvasdvvc cv cvbdfbdfbdfbdf
-nclkjdskjlnñdsnkjldsfbdfbfgbfgbfgnfgdkjldergerghbgdbdfbdfbb.klhblhvvlvhvñihvñv cvcfghshsdfsdfnsgnsdfbndfsngfnsdfv vbdfbdfbfbngbfgfhhgnfnfnfnfgdfgnfgnfgnfgnfgnfgnihvñjvjkergerg
+nclkjdskjlnñdsnkjldsfbdfbfgbfgbfgnfgdkjldergerghbgdbdfbdfbb.klhblhvvlvhvñihvñv cvcfghshsdffrggfgdfhhhhhhhhhhhhhhhhhhhhhhaerwargarw
 vbdbdfbdnrtnrtnrtnrtnrtnrtnhtrnrtehbgnfgngngnfgnvn vb bv vb vb vb vb
 rthrthrthrthtrhrthrthrt
 ghfgnfgnfgnfgnfdbdfbdfbdfbdfbdfbdfbdfbdfbdfbyjhfjhjtyjryjryjryjrtjdfgdfvsdbnfgbfdgnfgffgfgbn
