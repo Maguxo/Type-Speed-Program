@@ -5,3 +5,4 @@ Se hace el panel que inicia, se tratara girar a voluntad una imagen circular en 
 ,mnbvcxz<
 sdvhsdkvgksdjvjvsdjcvsdjvckjdsvcvcjvsdkjcvsd,jvkjdvckgdvkc sdkjcvsdkvcmsd vmsdvkjsvdkjdkkadsjcvlsdbv,jdbvkjsdvkjvds,jv,sdvb,jadv,jsdvdjsdv,jdvkjs kjdkjvsdjv.........................
 ,fnblksdfbkjlfklgbkjdfgbljsdklbsdbkñbsñdfkbnñskdfnñjdfñlkdsnñbsñdlnkdfbkjlsfkjlnñnñf lbsdfngñadkñbñsdnñsdfñkjgnñsdlgnñajdhviphbldbvloadbovaowlfouaeouifgaelbflagogelfbwelfoergflabevlogeirpugoeiroiegaejvoeivobvougeurokjqehbvipwehpivhqerloefhvkñnsflbwrihnsñdfkjsbeovas
+,jsblvkfklvkdfbvkjñfñkvdflkjbñfvñbkjvkjñdbñkjbfñkjvfljvbjñbgñiehighlblfbvilfblkañgekjgbvlkfblaeipferihp
