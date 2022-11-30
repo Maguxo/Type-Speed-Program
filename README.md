@@ -3,7 +3,7 @@ Escribir lo mas veloz posible.
 Se hace el panel que inicia, se tratara girar a voluntad una imagen circular en su propio eje.
 ......
 ,mnbvcxz<
-fnbvdf bfklfk dfkjbañdfdjb.bñkjhd vñkjfdfvkfvnñkdnvkafnvñanv
+fnbvdf bfklfk dfkjbañdfdjb.bñkjhd vñkjfdfvvmvcmvbvccbmmcmcgmghmghmgcvbdfhngnsdfhedfdshkfvnñkdnvkafnvñanv
 af ñkafvnaf{afkjañlfnñalflgñlalfgñafhgañhalfghñalfghañfghlkfglkgjadfgafdsfnñkadshñasdnñkajsdhahaskdsjnwhfanñaksdjvv avahva wefñhewfojsdñf foiohfñdfnñasdsdkjnhfakdjadsjkhñjdhñasdkjhñakjsdfhofhñkdjfnawf
 djkfaegkdfbñkjdnfkbndfklbnlkdfbkjldklfblkdfbkjlbdfklbldkblksdfblkdsflghdfbvldflbdvlbzdlfjhbvalbvkladfbv
 afmnv{an
