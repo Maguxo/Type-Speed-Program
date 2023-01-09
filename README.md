@@ -3,4 +3,4 @@ Escribir lo mas veloz posible.
 Se hace el palkjpibpib´pib´pib´{ 
 zdhgihblgbañbgñsbñvbñfvbñajbvñasbdñvabsdñvjbañsdbvñasdbñvbasñdlkvbasñbvñabsñvadfb
 kerghlhlhadñbgñadblvbñsdbvbdflbvñskdbgñvoadsb{govlabds{ñbñafdbadfheh
-jdhñkasdlasdlflasdflasdñabdñiasdsiñfbñadskbñkjasdvafvdfbv
+jdhñkasdlasdlflasdflasdñabdñiasdsiñfbñadskbñkjasdvafvdfbve.kfjbhñaskdbñksadbñkbñsdkjbñadsb{labsñsgasf
