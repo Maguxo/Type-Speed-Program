@@ -1,4 +1,24 @@
-<div id="hola" ling="center">
+<div id="hola" align="center">
  
 <img src="https://i.pinimg.com/originals/cf/51/ad/cf51ad748537f4ea6899ab44388ad110.gif" width="500" height="250">
 </div>
+<!DOCTYPE html>
+<html lang="en">
+<!DOCTYPE html>
+<html lang="en">
+<!DOCTYPE html>
+<html lang="en">
+
+<body>
+<h1>Feature</h1>    
+<h6>
+    1),   .............    
+</h6>
+<h6>
+    2).   ............    
+</h6>
+<h6>
+    3).   ............    
+</h6>
+</body>
+</html>
