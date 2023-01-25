@@ -15,7 +15,7 @@
     1). Help you to be more agile when writing.  
 </h6>
 <h6>
-    2).   ............    
+    2). Timer.    
 </h6>
 <h6>
     3).   ............    
