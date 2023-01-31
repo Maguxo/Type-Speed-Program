@@ -18,7 +18,7 @@
     2). Timer.    
 </h6>
 <h6>
-    3)ñljhñbñ..........df.    
+    3)fast writing.    
 </h6>
 </body>
 </html>
