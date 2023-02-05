@@ -18,7 +18,7 @@
     2). Timer.    
 </h6>
 <h6>
-    3)fast---- writing.    
+    3)fast---- -----pkowriting.    
 </h6>
 </body>
 </html>
