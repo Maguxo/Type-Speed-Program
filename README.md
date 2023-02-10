@@ -18,7 +18,7 @@
     2). Timer.    
 </h6>
 <h6>
-    3)fas....--pkowriting.
+    3)fast write sentences.
     4)
 </h6>
 </body>
