@@ -18,8 +18,8 @@
     2). Timer.    
 </h6>
 <h6>
-    3)fast write.lkpjiohoinoh sentences.
-    4)
+    3)fast write sentences .
+    4) podria ser.
 </h6>
 </body>
 </html>
