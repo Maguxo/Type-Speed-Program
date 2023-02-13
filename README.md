@@ -19,7 +19,7 @@
 </h6>
 <h6>
     3)fast write sentences .
-    4) podria ser.
+    4) no.
 </h6>
 </body>
 </html>
