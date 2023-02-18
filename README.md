@@ -19,7 +19,7 @@
 </h6>
 <h6>
     3)fast write sentences .
-    4) juego simple siuuu.
+    4) juego simple noooooo.
 </h6>
 </body>
 </html>
