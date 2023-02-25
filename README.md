@@ -18,8 +18,7 @@
     2). Timer.    
 </h6>
 <h6>
-    3)fast write sentences .
-    4) juego ssdjnsdñlvnlsd.gbdgndnfhjkvkvlvhvlvnvuu.
+    3)fast write sentences.
 </h6>
 </body>
 </html>
