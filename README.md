@@ -16,16 +16,16 @@
 </h6>
 
 <h6>
-    1) Help you to be more agile when writing.  
+    2) Help you to be more agile when writing.  
 </h6>
 <h6>
-    2) Timer.    
+    3) Timer.    
 </h6>
 <h6>
-    3) Fast write sentences.
+    5) Fast write sentences.
 </h6>
 <h6>
-    4) Write with time.
+    6) Write with time.
 </h6>
 </body>
 </html>
