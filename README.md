@@ -21,7 +21,7 @@
     3) Fast write sentences.
 </h6>
 <h6>
-    4) Write for a while.
+    4) Write with time.
 </h6>
 </body>
 </html>
