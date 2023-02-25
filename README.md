@@ -15,10 +15,10 @@
     1). Help you to be more agile when writing.  
 </h6>
 <h6>
-    2). Timer.    
+    2)Timer.    
 </h6>
 <h6>
-    3)fast write sentences.
+    3)Fast write sentences.
 </h6>
 </body>
 </html>
