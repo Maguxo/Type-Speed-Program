@@ -12,6 +12,10 @@
 <body>
 <h1>Feature</h1>    
 <h6>
+    1) It is a game.  
+</h6>
+
+<h6>
     1) Help you to be more agile when writing.  
 </h6>
 <h6>
