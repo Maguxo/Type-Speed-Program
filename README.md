@@ -20,5 +20,8 @@
 <h6>
     3) Fast write sentences.
 </h6>
+<h6>
+    4) Write for a while.
+</h6>
 </body>
 </html>
