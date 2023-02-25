@@ -12,7 +12,7 @@
 <body>
 <h1>Feature</h1>    
 <h6>
-    1). Help you to be more agile when writing.  
+    1)Help you to be more agile when writing.  
 </h6>
 <h6>
     2)Timer.    
