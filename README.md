@@ -12,7 +12,7 @@
 <body>
 <h1>Feature</h1>    
 <h6>
-    1) It is a game.  
+    1) It´s a game.  
 </h6>
 
 <h6>
